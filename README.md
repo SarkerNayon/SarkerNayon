@@ -7,4 +7,4 @@
 - 💬 Ask me about :- How To Build A Computer.
 - 📫 How to reach me:- Nynsrker@gmail.com
 - 😄 Pronouns:- He/Him
-- ⚡ Fun fact:- Love Fishing and A Computer Nard.
+- ⚡ Fun fact:- Love Fishing and All things Computer.
